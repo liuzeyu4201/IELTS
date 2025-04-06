@@ -1,0 +1,11 @@
+In many countries, a small number of people earn extremely high salaries. Some people believe that this is good for the country, but others think that
+governments should not allow salaries above a certain level.
+Discuss both these views and give your own opinion.
+
+
+
+Some people agree that a small number of people take very high salaries which is good for the country, while others believe that all people should earn  the same level of salary. In my experience, the two ideas have their own reasons, so I believe that governments should allow a small group of people earn significantly higher salaries than others, but them should share a part of their wealth with the low-income people.
+
+On the one hand, a small number of  wealthy people bring a main benefit to local residents. The rich people in society can encourage others to  work hard to earn more salaries. This is because  wealthy people often have more positive qualities than others such as  bravery or intelligence, which provide others with a good example to mimic. To be more specific, some people will  work harder and more positive attitude to their job, because they also want to become rich themselves.  For example, primary school teachers often tell stories of successful people to their students in class ,like the famous Chinese writer ZhaoPu, who was born in a very poor family. His family even can not provide the money to read book in school, However ZhaoPu who do not give up and even  studied harder than others. So, Finally, He  become a very famous writer in China. As a result, this story encourages many students who believe ZhaoPu as their example.
+
+On the other hand, the income gap can not be ignored. To be begin with,the high income gap has  proved to  lead to serious social problems. This is due to the fact that people living in poverty  are more easily to commit crime, because their jobs can not cover their living costs. So they may take risks to break the law. if governments keep ignoring to these groups of people , they will definitely feel more pressure to live. so, In my opinion, It is necessary for rich people share their money with such poor people ,which protects the  peace and safety of cities.                       
